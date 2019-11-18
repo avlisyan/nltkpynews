@@ -1,1 +1,3 @@
 # nltkpynews
+
+Notícias utilizadas:
