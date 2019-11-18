@@ -36,3 +36,13 @@ https://oglobo.globo.com/opiniao/e-bom-plano-do-primeiro-emprego-24061559
 
 https://oglobo.globo.com/opiniao/artigo-crivella-ingenuo-ou-espertinho-24058358
 
+https://noticias.uol.com.br/ultimas-noticias/ponte-jornalismo/2019/11/17/psl-alesp-onu-trofeus.htm
+
+https://noticias.uol.com.br/politica/ultimas-noticias/2019/11/17/movimentos-civico-renovacao-politica-candidatos-eleicoes-municipais-2020.htm
+
+https://noticias.uol.com.br/ultimas-noticias/agencia-estado/2019/11/16/fala-de-lula-invoca-a-polarizacao-diz-temer-em-congresso-do-mbl.htm
+
+https://noticias.uol.com.br/ultimas-noticias/agencia-estado/2019/11/16/decisao-no-caso-flavio-bolsonaro-desborda-recurso-no-stf-diz-mp-rj-a-toffoli.htm
+
+https://noticias.uol.com.br/politica/ultimas-noticias/2019/11/16/maia-diz-que-camara-nao-pautara-aumento-de-impostos-ate-2021.htm
+
